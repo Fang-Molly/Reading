@@ -27,12 +27,12 @@
 
 •《鸽子需要洗澡》The Pigeon Needs a Bath! (2014)
 
-•《鸽子必须去上学》The Pigeon HAS to Go to School! (2019)
+•《鸽子必须去上学》The Pigeon HAS to Go to School! (2019)   # read
 
 
 🐰  **Knuffle Bunny series “古纳什小兔”系列**
 
-•《古纳什小兔》 Knuffle Bunny: A Cautionary Tale (2004) — Caldecott Honor (2005), Charlotte Zolotow Honor 2005
+•《古纳什小兔》 Knuffle Bunny: A Cautionary Tale (2004) — Caldecott Honor (2005), Charlotte Zolotow Honor 2005 # read
 
 •《古纳什小兔又来了》 Knuffle Bunny Too: A Case of Mistaken Identity (2007) — Caldecott Honor (2008)
 
@@ -83,7 +83,7 @@
 
 •《新朋友真有趣》My New Friend Is So Fun! (2014)
 
-•《等待真不容易》Waiting Is Not Easy! (2014) — Theodor Seuss Geisel Honor (2015)
+•《等待真不容易》Waiting Is Not Easy! (2014) — Theodor Seuss Geisel Honor (2015)  # read
 
 • I Will Take a Nap!
 
